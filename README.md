@@ -1,4 +1,4 @@
 ### **WELCOME** *to* shn67.github.io
 ---
 *SHAN* **BERGANTIN**
-![*VeryCool!*](![image](https://user-images.githubusercontent.com/118178364/202086900-e6ca69c9-a6eb-47fb-9d51-75f288611c19.png))
+![*VeryCool!*](![image](https://static01.nyt.com/images/2021/04/30/multimedia/30xp-meme/29xp-meme-superJumbo-v3.jpg?quality=75&auto=webp)
