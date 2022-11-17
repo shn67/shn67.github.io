@@ -1,8 +1,11 @@
 ### **WELCOME** *to* shn67.github.io :joy:
 ---
 *SHAN* **BERGANTIN** *Ogilvie* **9**
-*UwU*
+*Heyyy Hoyy HYAAA*
 **YeYHuH**
-![hELLO uWu gURLLhEr3](https://www.dailyfunnyquote.com/wp-content/uploads/2018/09/24-Gym-Memes-About-Going-To-The-Gym-That-Are-Way-Funnier-Than-They-Should-Be21.jpg)
-
+[title](https://tse3.mm.bing.net/th?id=OIF.r%2bVKhPXrPjzKflhOZj7lXA&pid=Api&P=0)
+[Dangdang](https://i.huffpost.com/gen/1873630/images/o-PIOJO-HERRERA-MEMES-facebook.jpg)
 [InsTagram](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+| Everyday | 
+---
+ | Lamon |
