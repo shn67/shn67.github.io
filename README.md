@@ -11,6 +11,6 @@
 
 [`InsTagram`](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
-| Everyday | 
-|----------|
-|   Lamon  |
+| Everyday | Monday |
+|----------|--------|
+|   Lamon  | Hatdognapula|
