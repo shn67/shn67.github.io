@@ -1,4 +1,6 @@
 ### **WELCOME** *to* shn67.github.io
 ---
-*SHAN* **BERGANTIN**
-![*VeryCool!*](![image](https://static01.nyt.com/images/2021/04/30/multimedia/30xp-meme/29xp-meme-superJumbo-v3.jpg?quality=75&auto=webp)
+*SHAN* **BERGANTIN** *Ogilvie* **9**
+*Hobbies*
+**GYM!**
+![*bOOMBAAM!*](![https://i.pinimg.com/originals/9a/0d/2c/9a0d2c27a8353b7b80a7f0684b739e52.jpg)
